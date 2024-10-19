@@ -1,4 +1,4 @@
-### TEAM NAME: DETERRMINATES
+### TEAM NAME: DETERMINATES
 
 ## TEAM LEADER: TRISHA.S
 trishasailendran@gmail.com
